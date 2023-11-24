@@ -16,3 +16,7 @@ Mais d'ou venait ce méthane ?
 Un groupe d'enqueteur se rendirent dans le lieu du crime. 
 Sur les murs de la maison, des taches de sang gisaient. 
 C'était celles du cadavre.
+
+je commençais à avoir faim alors je me suis dis pourquoi pas aller chez Mcdo,
+le problème c'est que j'avais perdu mon porte feuille dans le train,
+donc j'ai commencé à mendier auprès des gens dans la rue
